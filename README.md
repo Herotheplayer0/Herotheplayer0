@@ -2,8 +2,7 @@ Welcome to my community.
 
 Sub to my YouTube -
 --Description--
-All alone and the only one left. You don't know how I am, what I can.
-I will show you what I am.
+Hey guys, I am Herotheplayer. A completely random kid who who wants to be a youtuber. You can call my Hiro for short. See, I am not here to destroy youtube like beluga did but yeah ;)
 https://www.youtube.com/channel/UChBq48pvafHenyj--ekp0VA/featured
 
 Join our Discord -
